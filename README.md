@@ -76,5 +76,3 @@ Last update: 19/06/23
 ```
 
 🔴NOTE: Use /tele way more easy!🔴
-
-[<img src="https://i.imgur.com/5FwNZfI.png">](https://discord.com/invite/dXUkasvm/)
